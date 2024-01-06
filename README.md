@@ -1,1 +1,0 @@
-# Codsoft-task-2-landing_page
